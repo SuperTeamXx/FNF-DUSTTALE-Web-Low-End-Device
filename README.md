@@ -5,4 +5,4 @@ Anthropophobia works now
 
 This HTML5 port is property of SuperTeamXP 
 
-Do not fork this repository without acknowledging me
+Do not fork/clone this repository without acknowledging me
