@@ -1,4 +1,4 @@
-## HEY YOU, yeah you Jayden, go to the potato version instead at the bottom of this page, and ur S U S
+## HEY YOU, yeah you Jayden, go to the potato version instead at the bottom of this page cause iPads are crappy and can't handle as much, and ur S U S
 
 ## You can play FNF DUSTTALE Unblocked [here!](https://superteamxp.github.io/FNF-DUSTTALE-Web-Low-End-Device/)
 # THE ARROW KEYBINDS WORK NOW
