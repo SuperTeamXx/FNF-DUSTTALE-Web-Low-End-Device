@@ -1,5 +1,3 @@
-## HEY YOU, yeah you Jayden, go to the potato version instead [here](https://github.com/SuperTeamXP/FNF-DUSTTALE-Web-Potato-Device) cause iPads are crappy and can't handle as much, and ur S U S
-
 ## You can play FNF DUSTTALE Unblocked [here!](https://superteamxp.github.io/FNF-DUSTTALE-Web-Low-End-Device/)
 # THE ARROW KEYBINDS WORK NOW
 Anthropophobia works now
